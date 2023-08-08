@@ -4,7 +4,7 @@
 
 *Created by Jas Harris*
 
-I created this website on August 8, 2023. I don't really know what to put up here, I'm just vibing.
+I love music, nature, SexyyRed, women, and black people.
 
 I'm ready to go back to school...
 
