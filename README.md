@@ -13,8 +13,8 @@ This is my favorite SexyyRed song right now:
 Berkely has been cool but I'm ready to go back to school.
 
 
-## TO SKEGEE! ##
+## BACK TO SKEGEE! ##
 
-# RIP BIG POKEY
+**RIP Big Pokey man.**
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/ARTPwf05ka0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
